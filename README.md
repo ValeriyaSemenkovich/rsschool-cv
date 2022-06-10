@@ -1,1 +1,1 @@
-# rsschool-cv
+https://github.com/ValeriyaSemenkovich/rsschool-cv/cv
